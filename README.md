@@ -1,1 +1,1 @@
-My first readme
+I will acquire these skills
